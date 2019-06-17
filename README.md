@@ -1,0 +1,2 @@
+# asaljadimanusia
+asaljadimanusia
